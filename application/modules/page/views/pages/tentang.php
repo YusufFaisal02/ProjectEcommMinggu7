@@ -1,0 +1,3 @@
+<h3><b><center>TENTANG TikBatik</b></h3>
+<br>
+<p>TikBatik merupakan salah satu marketplace batik yang bermitra dengan para pengerajin batik diIndonesia. Didirikan pada tahun 2021 , Tikibatik  awalnya merupakan toko khusus batik dengan layanan daring yang memungkinkan para pelaku pengerajin batik dapat menjual batiknya secara online. Tikbatik ini beroperasi di Semarang tepatnya di Jalan Sendang indah. TikBatik sekarang sedang menjalankan kerjanya untuk dapat meningkatkan para penjual batik lewat layanan mitra.</p>
